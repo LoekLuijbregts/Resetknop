@@ -78,4 +78,4 @@ Gemaakt door [Loek Luijbregts](https://loekluijbregts.com) — fietser, ondernem
 
 ---
 
-*Dit hulpmiddel vervangt geen professionele hulp. Bij aanhoudende klachten, bel je huisarts of de crisislijn: **0900 - 0113**.*
+*Dit hulpmiddel vervangt geen professionele hulp. Bij aanhoudende klachten, bel je huisarts of de crisislijn: **113 of 0800-0113 (gratis)**.*
